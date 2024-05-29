@@ -8,3 +8,5 @@ Utilizo essa plataforma por que sou obrigada pela escola:)
 https://media1.tenor.com/m/ncNLeuUPbIEAAAAd/no-humanity-elena.gif
 
 
+Meu projeto
+https://scratch.mit.edu/projects/1006071104
